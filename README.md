@@ -2,7 +2,7 @@
 - 👀 I’m interested in UIUX
 - 🌱 I’m currently learning Html and css
 - 💞️ I’m looking to collaborate on UI Design
-- 📫 How to reach me email to gmail@azmizen.com
+- 📫 How to reach me email to zen.uiux@gmail.com
 - 😄 Pronouns: Z-E-N
 - ⚡ Fun fact: love to learn everything 
 
